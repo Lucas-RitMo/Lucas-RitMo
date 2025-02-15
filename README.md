@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lucas-RitMo
-- 👀 I’m interested in gettig though this bit in one bit.
+- 👀 I’m interested in getting through this part in one bit.
 - 🌱 I’m currently learning this code thing. Seems cool.
 - 📫 How to reach me (Not yet. :-|).
 - 😄 Pronouns: He/Him(Anything I miss?)
